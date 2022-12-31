@@ -1,2 +1,2 @@
-# cosalina-Ifeme-mandate
+# cosaline-Ifeme-mandate
 curriculum instructions and mandate
